@@ -1,1 +1,1 @@
-# sample-repo
+today is thrusday

@@ -1,1 +1,1 @@
-today is thrusday
+today is saturday
